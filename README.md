@@ -1,0 +1,1 @@
+# spacial-navigation-artikel_CMDA-Minor-Web
